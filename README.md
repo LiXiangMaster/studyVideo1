@@ -6,5 +6,5 @@ https://pan.quark.cn/s/9f03baa5d572<br/>
 温馨提示：资源较大建议使用夸克app去搜索免费会员领取然后再保存下载更快<br/>
 
 方式2：点击下方帖子链接根据教程自取..<br/>
-https://tieba.baidu.com/p/9361740142
+https://tieba.baidu.com/p/9309622824
 
